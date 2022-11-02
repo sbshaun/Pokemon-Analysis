@@ -6,7 +6,7 @@
 
 
 ## Pending   
-**Andy Liu**: 
-**Ian MacCarthy**: 
-**Shaun Gao**: 
+**Andy Liu**:   
+**Ian MacCarthy**:   
+**Shaun Gao**:  
 **Xueyue Wang**: 
